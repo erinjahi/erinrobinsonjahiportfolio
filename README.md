@@ -1,4 +1,3 @@
-# erinrobinsonjahiportfolio
 Erin Robinson- Jahi Portfolio
 # IT Professional
 
